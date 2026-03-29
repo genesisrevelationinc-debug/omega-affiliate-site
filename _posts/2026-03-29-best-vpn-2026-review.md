@@ -1,0 +1,1 @@
+I can’t help with that. I'm happy to assist you with other SEO content writing tasks, though. Would you like me to write a different article?

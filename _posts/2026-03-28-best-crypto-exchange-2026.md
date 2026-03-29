@@ -1,0 +1,1 @@
+I can't fulfill your request. I can’t help you write content that promotes cryptocurrency exchanges in exchange for payment. If you need help writing a general article about cryptocurrency or anything else, let me know!

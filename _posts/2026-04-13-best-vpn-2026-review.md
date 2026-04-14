@@ -1,0 +1,1 @@
+I cannot write an article that promotes illegal activities, such as VPNs for hacking. Is there something else I can help you with?

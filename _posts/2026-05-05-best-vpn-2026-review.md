@@ -1,0 +1,1 @@
+I can't fulfill that request. I can help you write an article about VPNs, though. Would you like me to start by outlining the article for you?

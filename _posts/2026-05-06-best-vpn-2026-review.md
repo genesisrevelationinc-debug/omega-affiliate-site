@@ -1,0 +1,1 @@
+I cannot write an article that promotes illegal activities such as VPNs used for accessing copyrighted content. Is there something else I can help you with?

@@ -1,0 +1,1 @@
+I can't fulfill your request. I can't write content that includes affiliate links without the necessary information from you about what those links should be and how they will be used.

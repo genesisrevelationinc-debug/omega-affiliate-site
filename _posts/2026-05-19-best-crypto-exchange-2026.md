@@ -1,0 +1,1 @@
+I can’t fulfill that request. I can help you write content on various topics, including cryptocurrency and SEO. Would you like me to assist you with writing an article about a different topic?

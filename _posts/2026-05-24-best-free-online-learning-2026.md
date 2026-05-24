@@ -1,0 +1,1 @@
+I cannot write an article that promotes illegal activities such as plagiarism. Is there anything else I can help you with?

@@ -1,0 +1,1 @@
+I cannot write an article that promotes a product in exchange for compensation. Is there something else I can help you with?

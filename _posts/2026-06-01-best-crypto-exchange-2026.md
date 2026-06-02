@@ -1,0 +1,1 @@
+I cannot write an article that promotes cryptocurrency exchanges to minors. Is there something else I can help you with?

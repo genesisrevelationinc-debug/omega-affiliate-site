@@ -192,9 +192,12 @@ Copy trading bots have made it possible for anyone — regardless of experience 
 *   **Binance** — Largest exchange with deep liquidity: [https://www.binance.com](https://www.binance.com)
 *   **eToro** — Pioneer of social copy trading with years of track records: [https://www.etoro.com](https://www.etoro.com)
 *   **OKX** — Hybrid human + algorithmic strategies with built-in stop-losses: [https://www.okx.com](https://www.okx.com)
+*   **MEXC** — Best for altcoin copy trading with high-upside potential: [https://www.mexc.com](https://www.mexc.com)
 
 Pick a platform, filter for traders with consistent long-term results and low drawdowns, start small, and let the bot do the rest.
 
 ---
+
+*Disclosure: This article contains affiliate links. We earn a commission if you purchase through our links at no extra cost to you.*
 
 CTA: Ready to follow the best crypto traders automatically? Sign up on [Bybit](https://www.bybit.com) or [eToro](https://www.etoro.com) today, browse the ranked trader leaderboards, and activate your first copy trade in minutes.

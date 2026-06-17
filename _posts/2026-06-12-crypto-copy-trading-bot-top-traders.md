@@ -102,7 +102,7 @@ Bitget Wallet is one of the top Web3 wallets with built-in copy trading features
 
 **Best for**: Users who want to copy on-chain traders and DeFi strategies without moving funds to a centralized exchange.
 
-Get started with Bitget Wallet — use referral code **jscKz6**: [https://web3.bitget.com](https://web3.bitget.com)
+Get started with Bitget Wallet: [https://web3.bitget.com/invite_login?inviteCode=jscKz6](https://web3.bitget.com/invite_login?inviteCode=jscKz6)
 
 ---
 
@@ -174,7 +174,7 @@ Copy trading bots have made it possible for anyone — regardless of experience 
 *   **Binance.US** — US-regulated exchange with deep liquidity: [https://binance.us/en/register?ref=614196258](https://binance.us/universal_JHHGDSKDJ/auth/registration?ref=614196258)
 *   **eToro** — Pioneer of social copy trading with years of track records: [https://etoro.tw/3QmFmNV](https://etoro.tw/3QmFmNV)
 *   **OKX** — Hybrid human + algorithmic strategies with built-in stop-losses: [https://app.okx.com/en-us/join/50825825](https://app.okx.com/en-us/join/50825825)
-*   **Bitget Wallet** — On-chain copy trading across multiple blockchains (code: jscKz6): [https://web3.bitget.com](https://web3.bitget.com)
+*   **Bitget Wallet** — On-chain copy trading across multiple blockchains: [https://web3.bitget.com/invite_login?inviteCode=jscKz6](https://web3.bitget.com/invite_login?inviteCode=jscKz6)
 
 Pick a platform, filter for traders with consistent long-term results and low drawdowns, start small, and let the bot do the rest.
 
